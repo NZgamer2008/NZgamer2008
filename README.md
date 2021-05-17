@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @NZgamer2008
+- 👀 I’m interested in using a.i. and other misc. things
